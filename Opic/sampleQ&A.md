@@ -26,79 +26,81 @@
 ### Describe a special memory related to this hobby.
 9. the most special memory is about pull-ups. as I said, I started working out in the military. as you know, there wasn't a lot of machines or barbels, which I could use for working out so the only thing I could do was pull ups and push ups. I was able to do push ups, but pull ups, I swear, I couldn't do a single pull-up. I mean, I could hang on the bar, but I couldn't do a single pull up. but after 2 years of practice, I was able to hit 20 pull-ups. and that moment was the most memorable moment related to this hobby.
 
-## AFTER
-# OPIC IH–AL Practice Answers
+## OPIC IH–AL Practice Answers (Natural Speaking Version)
 
-## 1. Where you live
+### 1. Where you live
 I live in Busan, which is the second largest city in South Korea after Seoul.  
-It’s a beautiful coastal city, so I can see the ocean and amazing sunsets almost every day.  
+I mean, it’s a really beautiful coastal city, so I can see the ocean and amazing sunsets almost every day.  
 Some foreigners don’t really know Busan because Seoul is much more famous.  
 For example, one of my Indonesian friends had never heard of it before.  
-But once people visit Busan, they usually fall in love with the scenery and relaxed atmosphere.
+But anyway, once people actually visit Busan, they usually fall in love with the scenery and relaxed atmosphere.
 
 ---
 
-## 2. What you do at home
+### 2. What you do at home
 Honestly, I don’t like staying at home very much because I’m a very active person.  
-Even when the weather is bad, I usually go outside to have lunch or grab coffee.  
+You know, even when the weather is bad, I usually go outside to have lunch or grab coffee.  
 So I don’t spend much time at home, and I really enjoy being outdoors and moving around.
 
 ---
 
-## 3. Memorable experience at home
+### 3. Memorable experience at home
 In the past, I used to live in a house instead of an apartment.  
-The best thing about living in a house was that I could run or jump freely anytime I wanted, even at night.  
-Since I’m very energetic, not being able to move around makes me feel stressed and depressed.  
-So for me, living in that house was one of the happiest and most memorable experiences in my life.
+And by the way, the best thing about living in a house was that I could run or jump freely anytime I wanted, even at night.  
+Since I’m very energetic, not being able to move around makes me feel stressed and kind of depressed.  
+So anyway, living in that house was one of the happiest and most memorable experiences in my life.
 
 ---
 
-## 4. Weekday routine
+### 4. Weekday routine
 My daily routine is very consistent.  
 I wake up at 7 a.m., eat breakfast, and go to the gym at 8. After working out, I go to school.  
 The commute takes almost an hour by subway, which is honestly exhausting.  
-But I still go every day because if I stay home, I become lazy and unproductive.  
+But I still go every day because, I mean, if I stay home, I become lazy and unproductive.  
 So going to school helps me stay disciplined and avoid becoming a couch potato.
 
 ---
 
-## 5. Weekend routine
+### 5. Weekend routine
 Unlike weekdays, I usually stay at home on weekends.  
 I watch movies, drink coffee, and sometimes just sleep a lot.  
 The only time I go out is to work out at the gym.  
-For me, weekends are purely for resting because weekdays are very tiring.  
+Anyway, for me, weekends are purely for resting because weekdays are very tiring.  
 Taking enough rest is the most important way for me to prepare for the next week.
 
 ---
 
-## 6. Sudden schedule change
+### 6. Sudden schedule change
 Something like that happened just last week.  
 While I was on the subway going to school, my dad called me and said we had to go to Cheongdo for farming.  
-My family grows persimmons, and it was harvest season.  
+By the way, my family grows persimmons, and it was harvest season.  
 So I had to cancel my normal schedule and stay in Cheongdo for several days to help with harvesting.  
-After finishing the work, I finally came back to Busan yesterday.
+After finishing the work, I finally came back to Busan yesterday.  
+I mean, it was a sudden change, but also a meaningful experience with my dad.
 
 ---
 
-## 7. Free-time hobby
+### 7. Free-time hobby
 In my free time, I usually go to the gym and work out.  
-I’ve made many friends there, so we talk about workouts, daily life, and even personal concerns.  
+You know, I’ve made many friends there, so we talk about workouts, daily life, and even personal concerns.  
 Sometimes I go with my girlfriend as well, which makes exercising more enjoyable.  
-Working out is not just a hobby for me—it’s part of my lifestyle.
+Anyway, working out is not just a hobby for me—it’s really part of my lifestyle.
 
 ---
 
-## 8. How you started working out
+### 8. How you started working out
 I first became interested in working out during my military service.  
 At that time, my biggest goal was to build a better body because I wasn’t in good shape when I was younger.  
 I used to feel jealous of people with muscular bodies, so I searched for ways to improve myself.  
-That’s when I discovered bodybuilding and started following workout routines seriously.
+And that’s when I discovered bodybuilding and started following workout routines seriously.  
+I mean, that moment really changed my lifestyle.
 
 ---
 
-## 9. Memorable workout moment
+### 9. Memorable workout moment
 My most special memory is related to pull-ups.  
 In the military, there weren’t many workout machines, so I mostly did push-ups and pull-ups.  
 At first, I couldn’t even do a single pull-up—I could only hang on the bar.  
 But after about two years of continuous practice, I finally reached 20 pull-ups in a row.  
-That moment made me feel incredibly proud, and it’s still my most unforgettable workout memory.
+Anyway, that moment made me feel incredibly proud, and it’s still my most unforgettable workout memory.
+
