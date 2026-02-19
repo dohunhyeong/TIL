@@ -104,3 +104,23 @@ At first, I couldn’t even do a single pull-up—I could only hang on the bar.
 But after about two years of continuous practice, I finally reached 20 pull-ups in a row.  
 Anyway, that moment made me feel incredibly proud, and it’s still my most unforgettable workout memory.
 
+
+### 10. Tell me about the restaurant you ate out at recently. <br>what kind of restaurant was it?<br> what was their main menu and what did you eat?<br> who did you go with? <br>Did you like how the food tasted?
+- MP: 
+Nervous -> Making Decision(Choosing the menu) is hard -> the day my girlfriend was happy with my decision -> taste? the best chicken I've ever had   
+- answer: 
+Let me see I think the last time I ate out at was the chicken restrant and I went their with my girlfriend and the first thing I remember was that I was nervous. because I think I'm not realy good at making decisions. 
+I mean makin decisons about chosing the restrant and     
+- eval : 내용이 잘 정돈되지 않음. 레스토랑에 갔다가 긴장됐다가 결정잘못한다고 했다가 다시 본론으로 돌아가서, 맛이 있었다고 했다가 하는 식이라 내용이 정리가 안됨.
+
+- MP2 :
+  1. Last week, I went to the Korean barbeque restaurant with my friends.
+  2. I remember that restaurant was different from most korean barbeque restaurants.
+  3. cuz,it was all-you-can-eat korean bbq place with 5 different types of meat.( I could have 5 kinds of barbeques infinitely.)
+  4. and I just paid almost...I guess..30,0000 won..
+  5. can you believe it? only 30,000 won for 5 different kinds of meat and some hams and sausages.. infinitely.
+  6. I went there with my friends we wouldn't even get to try two of the five types of meat.
+  7. we were so full that we couldn't have had all of that barbeques..
+  8. at that time, I had no regret. but now... I really regret leaving those other three types behind!
+   
+
