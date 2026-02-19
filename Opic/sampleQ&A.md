@@ -123,4 +123,5 @@ I mean makin decisons about chosing the restrant and
   7. we were so full that we couldn't have had all of that barbeques..
   8. at that time, I had no regret. but now... I really regret leaving those other three types behind!
    
-
+- answer:
+  "Last week, I went to a Korean BBQ restaurant that was a bit different from the usual spots. It was an all-you-can-eat place with five different kinds of meat—all for only 30,000 won! Can you believe it? Five types of BBQ plus ham and sausages, all unlimited. I went with friends, but we were so full that we didn't even get to try two of the five meats. At the time, I was fine with it, but now I’m really regretting that I missed out on those other three!"
