@@ -113,7 +113,7 @@ Let me see I think the last time I ate out at was the chicken restrant and I wen
 I mean makin decisons about chosing the restrant and     
 - eval : 내용이 잘 정돈되지 않음. 레스토랑에 갔다가 긴장됐다가 결정잘못한다고 했다가 다시 본론으로 돌아가서, 맛이 있었다고 했다가 하는 식이라 내용이 정리가 안됨.
 
-- MP2 :
+- MP2 : all-you-can-eat Korean BBQ restaurant   
   1. Last week, I went to the Korean barbeque restaurant with my friends.
   2. I remember that restaurant was different from most korean barbeque restaurants.
   3. cuz,it was all-you-can-eat korean bbq place with 5 different types of meat.( I could have 5 kinds of barbeques infinitely.)
@@ -125,3 +125,10 @@ I mean makin decisons about chosing the restrant and
    
 - answer:
   "Last week, I went to a Korean BBQ restaurant that was a bit different from the usual spots. It was an all-you-can-eat place with five different kinds of meat—all for only 30,000 won! Can you believe it? Five types of BBQ plus ham and sausages, all unlimited. I went with friends, but we were so full that we didn't even get to try two of the five meats. At the time, I was fine with it, but now I’m really regretting that I missed out on those other three!"
+
+## 서베이 토픽 전략
+### 1. 내가 진짜 좋아하는 주제인가?
+### 2. 이걸 다른 사람들도 좋아할까?(이미 알려진 스크립트가 많으면 굳이 선택하지 않는 것을 고려하지 않는 것도 좋다)
+### 3. 인기 없는 토픽을 선택하면 좋은점? -> unique하고, Script가 없다는 장점이 있음.
+
+### "You indicated in the survey that you like to go clubbing. Tell me about your typical routine when you go to a club. What do you usually do from the moment you arrive until you leave? Who do you go with, and what is the first thing you do when you get there?"
